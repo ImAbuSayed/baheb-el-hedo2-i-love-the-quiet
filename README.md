@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> آه، آه...
+> في السكون أسمع نبضك ينادي
+> ينادي...
+> ونار الشوق تضيء فؤادي
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
